@@ -19,8 +19,8 @@
 - Open-source initiatives in web development  
 
 ## 📫 How to Reach Me  
-- **Email**: [karan.mishra@example.com](mailto:karan.mishra@example.com)  
-- **LinkedIn**: [My LinkedIn Profile](https://www.linkedin.com/in/karanmishra)  
+- **Email**: [karan.mishra@example.com](mailto:karan206245mishra@gmail.com)  
+- **LinkedIn**: [My LinkedIn Profile]([https://www.linkedin.com/in/karanmishra](https://www.linkedin.com/in/karan-mishra-937140267/))  
 
 ## 😄 Pronouns  
 He/Him  
