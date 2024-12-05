@@ -20,7 +20,7 @@
 
 ## 📫 How to Reach Me  
 - **Email**: [My Email](mailto:karan206245mishra@gmail.com)  
-- **LinkedIn**: [My LinkedIn Profile]([https://www.linkedin.com/in/karanmishra](https://www.linkedin.com/in/karan-mishra-937140267/))  
+- **LinkedIn**: [My LinkedIn Profile](https://www.linkedin.com/in/karan-mishra-937140267/)
 
 ## 😄 Pronouns  
 He/Him  
